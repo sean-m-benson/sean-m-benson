@@ -2,4 +2,4 @@
 
 👀 I’m interested in security, 日本語, running, and weightlifting.
 
-📫 You can reach me over [LinkedIn](https://www.linkedin.com/in/seanmbenson/).
+📫 You can reach me over on [LinkedIn](https://www.linkedin.com/in/seanmbenson/).
